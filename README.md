@@ -3,3 +3,9 @@
 halo ini latihan
 
 halo, ini diedit di lokal 
+
+kkwkw
+
+uwuwuwuu
+
+ihihihihi
